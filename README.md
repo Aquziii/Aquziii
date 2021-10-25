@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aquziii
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Nothing haha
+- 📫 How to reach me Discord : Aquzi#9999
